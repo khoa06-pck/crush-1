@@ -1,1 +1,1 @@
-link chạy:https://phamvulinh18.github.io/crush/
+link chạy:https://khoa11.github.io/crush/
